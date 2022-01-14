@@ -1,2 +1,2 @@
 # Chess-by-Rudra-Pratap-Chauhan
-Hi! I am going to publish this app later, thanks and follow me!
+Hi! I am going to publish this app on Jan 16 2022, thanks and follow me!
